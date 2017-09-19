@@ -1,1 +1,2 @@
 # dyn-seg
+fgndgj tejynyr 
